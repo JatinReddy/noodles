@@ -1,1 +1,1 @@
-maggi noodles, boiled drinking water
+maggi noodles, boiled drinking water.
